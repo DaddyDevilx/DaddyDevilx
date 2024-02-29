@@ -1,1 +1,1 @@
-no.
+no. you're adopted.
